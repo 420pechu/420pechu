@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @420pechu
-- 👀 I’m interested in cybersecurity
+- 👀 I’m interested in cybersecurity & hacking
 - 
 - 📫 How to reach me @7212thug (Instagram), @pechukita (Twitter), //velociraptor83 (WickrMe) @bluntzMafia (Telegram)
