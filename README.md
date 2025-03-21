@@ -1,4 +1,2 @@
-- 👋 Hi, I’m @420pechu
-- 👀 I’m interested in cybersecurity & hacking
-- 
-- 📫 How to reach me @7212thug (Instagram), @pechukita (Twitter), //velociraptor83 (WickrMe) @bluntzMafia (Telegram)
+- 👋 Hi, I’m clamored
+- 📫 How to reach me t.me/clamored
